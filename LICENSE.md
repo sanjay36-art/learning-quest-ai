@@ -1,1 +1,1 @@
-https://github.com/sanjay36-art/learning-quest-ai/invitations
+https://github.com/-art/learning-quest-ai/invitations
